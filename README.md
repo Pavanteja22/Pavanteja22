@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pavanteja22
-- 👀 I’m interested in dance
+- 👀 I’m interested in create an app or website
 - 🌱 I’m currently pursuing MCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...8985226228
